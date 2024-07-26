@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning a lot of GitHub
 - 💞️ I’m looking to collaborate on studies
 - 📫 How to reach me my email; 
-- 😄 Pronouns: He/His
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: i am bissexual
 
 <!---
